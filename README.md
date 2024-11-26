@@ -65,4 +65,4 @@ Through 7+ hackathons and competitions, I’ve honed my skills in problem-solvin
 ## 📫 Let's Connect!  
 - **Email:** [clark.wayne023@gmail.com](mailto:clark.wayne023@gmail.com)  
 - **GitHub:** [github.com/CHlNlTO](https://github.com/CHlNlTO)  
-- **LinkedIn:** [linkedin.com/in/clark-wayne-abutal-100-5001aa]([https://linkedin.com/in/yourprofile](https://www.linkedin.com/in/clark-wayne-abutal-1005001aa))  
+- **LinkedIn:** [linkedin.com/in/clark-wayne-abutal-100-5001aa](https://www.linkedin.com/in/clark-wayne-abutal-1005001aa)  
